@@ -1,7 +1,7 @@
 ### Hi there 👋
 
 
-**   ✨ AMAN SINGH THAKUR ✨ **
+**✨ AMAN SINGH THAKUR ✨
 
 Here are some ideas to get you started:
 
